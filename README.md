@@ -1,2 +1,1 @@
 # mindumaru
-ㅇㅇ
